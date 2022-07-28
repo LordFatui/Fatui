@@ -1,2 +1,2 @@
 # Fatui
-No booba no kife
+No booba no life
